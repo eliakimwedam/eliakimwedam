@@ -1,2 +1,2 @@
-# 👋 Hi, I’m Eliakim
-IT Student • Developer • Innovator • Founder of eLPi Group
+Eliakim Wedam Kubirizegah.
+Founder and Chief Executive, Elpyron Ltd.
